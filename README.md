@@ -1,1 +1,1 @@
-# Gud
+# Git Gud you Shitter
